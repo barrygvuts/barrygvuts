@@ -3,7 +3,7 @@
   
   ![](https://komarev.com/ghpvc/?username=karlgvuts&color=6e1c14&amp;label=views)
  
-screenshits dump ( some of my deadnames are in those photos, js dont mind it )
+screenshits dump ( my deadname are in those photos, js dont mind it ok? )
 
 <img src="https://files.catbox.moe/77nmez.png">
 <img src="https://files.catbox.moe/38epds.png">
