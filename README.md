@@ -39,3 +39,7 @@ screenshits dump ( my deadname are in those photos, js dont mind it ok? )
 <img src="https://files.catbox.moe/3ks3br.png">
 <img src="https://files.catbox.moe/xcc0ig.png">
 <img src="https://files.catbox.moe/2g1x5t.png">
+<img src="https://files.catbox.moe/m1vnvj.png">
+<img src="https://files.catbox.moe/kty6me.png">
+<img src="https://files.catbox.moe/tlqwv9.png">
+<img src="https://files.catbox.moe/8jinsm.png">
