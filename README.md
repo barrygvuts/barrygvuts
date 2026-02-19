@@ -3,6 +3,10 @@
   
   ![](https://komarev.com/ghpvc/?username=karlgvuts&color=6e1c14&amp;label=views)
 
+  this is clickable go click bro
+  
+  ↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓↓
+
   <details>
   <summary><ins>  <img width="20" height="20" alt="image" src="https://file.garden/Zl2CmebwmXKvGhRN/candyshoppe%20rentry/pixels/multicolor/190" /> information ( PLEASE READ ) </ins></summary>
   <div align="center"> 
@@ -11,7 +15,9 @@
   </div>
 </details>
 
-⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔
+
+<h3 align="center"
  
 screenshits dump ( my deadname are in those photos, js dont mind it ok? )
 
